@@ -106,7 +106,7 @@ Below are some of the highest-rated IPTV providers known for their performance, 
 
 ---
 
-[## ⭐ 1. Bexy IPTV](https://bexytv.com/whmcs/aff.php?aff=3)
+## [⭐ 1. Bexy IPTV](https://bexytv.com/whmcs/aff.php?aff=3)
 
 Bexy IPTV is one of the fastest-growing IPTV services in 2026, offering premium entertainment with over **30,000 live TV channels** and **150,000+ Movies & TV Shows**. It combines reliable streaming, high-quality video, and broad device compatibility to deliver an excellent viewing experience.
 
@@ -335,6 +335,9 @@ Most IPTV services support Firestick, Android TV, Smart TVs, Windows PCs, Macs, 
 
 ---
 [**✅👉 Get Your Free IPTV Demo Today**](https://bexytv.com/whmcs/aff.php?aff=3)
+
+---
+
 [**✅👉 Begin Watching HD & 4K Channels Free**](https://bexytv.com/whmcs/aff.php?aff=3)
 
 # Final Thoughts
