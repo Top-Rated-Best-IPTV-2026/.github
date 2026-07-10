@@ -32,10 +32,10 @@ Enjoy thousands of live television channels from:
 - 🇪🇺 Europe
 - 🇮🇳 India
 - 🇦🇺 Australia
-- 🌍 Middle East
-- 🌎 Latin America
-- 🌏 Asia
-- 🌍 Africa
+- Middle East
+- Latin America
+- Asia
+- Africa
 
 [**✅👉 Get Your Free IPTV Demo Today**](https://bexytv.com/whmcs/aff.php?aff=3)
 
